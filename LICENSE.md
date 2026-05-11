@@ -1,4 +1,4 @@
-#  
+#  ultimate dandy's world Scripts is the best dandy's world Script, featuring one-hit kill and auto-heal. Safe and powerful for all your needs.
 
 
 
